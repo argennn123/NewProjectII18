@@ -1,0 +1,11 @@
+ghcwd;iqwbf('OKIEBF'
+            'cpofwe[WFE'
+            ''
+            'w'
+            'ef['
+            'efpohc'
+            'eF[hf'
+            '[efh'
+            '[EFH'
+            '[FC'
+            '')
